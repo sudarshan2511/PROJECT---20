@@ -1,1 +1,1 @@
-PROJECT 20 OF WHITEHAT JR
+Project 20 of WhiteHat Jr. -Krish Garg
